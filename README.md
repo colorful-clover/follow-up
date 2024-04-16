@@ -3,6 +3,7 @@
 ## 2022
 
 - [到徐州探望铁链女的乌衣被抓](https://www.google.com/search?q=%E4%B9%8C%E8%A1%A3+%E8%A2%AB%E6%8A%93) 至今下落不明
+- [东方航空5735号班机坠毁](https://www.google.com/search?q=%E4%B8%9C%E8%88%AA+%E4%BA%8B%E6%95%85) 官方称仍在调查
 
 ## 2024
 
